@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @benjaminmeury
+- 👋 Hi, I’m Meury Benjamin
 - 👀 I’m interested in UX/UI Design
 - 🌱 I’m currently learning After effect
 - 📫 How to reach me https://www.instagram.com/benjaminmeury/
